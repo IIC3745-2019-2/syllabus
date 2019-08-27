@@ -71,7 +71,7 @@ A lo largo del semestre los estudiantes trabajarán en grupos para desarrollar u
 
 ### Examen
 
-El curso contará con un examen escrito obligatorio.
+El curso contará con un examen escrito obligatorio. Este será el día lunes 25 de noviembre a las 08:30 (duración y sala por confirmar).
 
 # Foro
 
